@@ -6,3 +6,4 @@ Anyway I hope you guys enjoy. I enjoy the game as well as making it. I hope you 
 
 This studio will be doing more as time goes on as well so stay tuned. If this game isnt for you then dont worry. We are working on more.
  
+Please do not take the game and claim it as your own.
